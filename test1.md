@@ -6,3 +6,4 @@
 some temples here
 
 ```
+![WuLalalala](./20170425180106_sAVU8.thumb.700_0.png)
